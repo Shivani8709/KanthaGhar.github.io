@@ -1,1 +1,1 @@
-# KanthaGhar.github.io
+# KanthaGhar.com
